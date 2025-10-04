@@ -1,1 +1,2 @@
-# the-dark-mages-return-to-enlistment
+# The Dark Mage’s Return to Enlistment
+Minjun Kim, un lycéen ordinaire en Corée, a été soudainement convoqué dans un autre monde, où il est devenu un mage noir. Déterminé à rentrer chez lui, il a surmonté toutes sortes d'épreuves et a sauvé l'autre monde grâce à la magie noire avant de laisser derrière lui toute sa richesse et sa gloire de héros pour retourner sur Terre. Cependant, avant qu'il ne puisse profiter pleinement de sa vie, un problème est survenu : une brèche dans un donjon s'est produite et des monstres sont arrivés, menaçant ses jours confortables. Par conséquent, Minjun, qui venait de revenir sur terre, n'avait d'autre choix que de... s'enrôler dès le lendemain !
